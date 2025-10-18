@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hi ,I'am Arpitha.S:
 🎓I’m currently studying Computer Science and engineering<br>💻 All of my projects are available on GitHub<br>📫 Reach out to me at arpithas2712@gmail.com<br>
 
 
